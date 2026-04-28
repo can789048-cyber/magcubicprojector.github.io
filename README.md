@@ -165,6 +165,8 @@ Look for:
 ## 5. Example of the Trend: Magcubic HY310X Mini Projector
 
 A good example of this evolution is the Magcubic HY310X.
+👉 Official product page:  
+https://www.magcubic.com/products/hy310x-mini-projector
 
 It reflects the “small but bright” direction of modern projectors.
 
